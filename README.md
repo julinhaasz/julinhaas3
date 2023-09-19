@@ -1,6 +1,6 @@
 salvinho🤙
 
-meu nome é julinha,estudo no colegio Estadual João XXIII. 
+meu nome é julinha zika,estudo no colegio Estadual João XXIII. 
 
 insta: @liaasz_ 
 
