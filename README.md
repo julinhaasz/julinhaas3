@@ -13,4 +13,3 @@ insta: @liaasz_
 
 
                                                               
-                                                           ![.](https://media.tenor.com/wlMl7x3MJ7AAAAAC/pingu.gif)
